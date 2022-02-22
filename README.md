@@ -1,0 +1,3 @@
+- Hi, I’m PSYCHO JENNY
+- ‧͙⁺˚*･༓☾ I’m interested in coding as a vessel to create art ‧͙⁺˚*･༓☾
+- 🌱 I’m currently learning beginner level coding on python/java/c++
